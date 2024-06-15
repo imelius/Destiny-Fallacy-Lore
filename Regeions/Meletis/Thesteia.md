@@ -1,0 +1,1 @@
+The village of Thesteia is little more than a crossroads, but it's notable for its temple to Karametra. The site draws farmers from the region who offer a portion of their crops to the god of agriculture.
